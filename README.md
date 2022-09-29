@@ -82,6 +82,8 @@ Since cuttlefish are indeterminate growers, small cuttlefish always have a chanc
 
 Additionally, cuttlefish unable to win in a direct confrontation with a guard male have been observed employing several other tactics to acquire a mate. The most successful of these methods is also one of the most remarkable; smaller cuttlefish will use their camouflage abilities to disguise themselves as a female cuttlefish. Changing their coloration, hiding their extra arms (males have four pairs, females only have three), and even pretending to be holding an egg sack, disguised males are able to swim past the larger guard male and mate with the female. Female cuttlefish will mate with several males, storing the sperm and later deciding which one to fertilize the eggs with; studies show that females will more often choose the males that employed this mating trick. This may be an adaptation in order to select for greater intellige
 
+[<img src="https://i.ytimg.com/vi/Hc79sDi3f0U/maxresdefault.jpg" width="50%">](https://www.youtube.com/watch?v=SjLapY8mPI4)
+
 <div align="center">
       <a href="https://www.youtube.com/embed/SjLapY8mPI4">
      <img 
